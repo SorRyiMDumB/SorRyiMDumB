@@ -1,4 +1,4 @@
-Hey, I’m @SorRyiMDumB
+Hey, I’m SorRy
 
 ✨ Sparkles ✨
 
